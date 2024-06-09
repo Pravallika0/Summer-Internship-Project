@@ -75,7 +75,7 @@ This work was done as part of an internship project. Special thanks to the autho
 
 ## Contact
 
-For any queries, please reach out via LinkedIn: [[Your LinkedIn Profile]](https://www.linkedin.com/in/pravallika-oggu-303360225/)
+For any queries, please reach out via LinkedIn: [[Pravallika Oggu]](https://www.linkedin.com/in/pravallika-oggu-303360225/)
 
 ---
 
